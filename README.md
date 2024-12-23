@@ -1,3 +1,5 @@
+Link Video: https://drive.google.com/file/d/1-ZFHPjrYV7x6e-kHRfktC5O9cbOO8TEr/view?usp=sharing
+
 Commitnya ada 2 Branch(bermasalah)
 
 ![Screenshot 2024-12-23 144513](https://github.com/user-attachments/assets/9ecec38b-7b90-473b-b85c-da5907ecd8db)
