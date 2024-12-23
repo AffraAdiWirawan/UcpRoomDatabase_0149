@@ -16,4 +16,5 @@ Commitnya ada 2 Branch(bermasalah)
 ![image](https://github.com/user-attachments/assets/358a806d-3e40-4ed6-ac38-a68d50799d6f)
 ![image](https://github.com/user-attachments/assets/519254c1-b369-444a-90d6-693f2f4af0fa)
 ![image](https://github.com/user-attachments/assets/c1a0c1b3-9d0d-4899-b434-f96d5a2283a7)
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/4a00324d-6d1c-4bf7-875f-f1896a4c8564)
+
